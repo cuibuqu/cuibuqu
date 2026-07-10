@@ -2,4 +2,4 @@
 Kae She/He Limit int if under 16
 <br> (:3 」∠) _ NO DNI Smiles warmly
 <br> <br>
-Hi Farg GC, Jasper, & Mo ♡♡ ILY
+Hi Farg GC, <a href="https://github.com/bacilli">Jasper</a> & Mo ♡♡ ILY
