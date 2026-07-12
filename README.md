@@ -1,5 +1,5 @@
 <br> <br>
-<p align="center" width="32%">
+<p align="center" width="29%">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31kbmd7bbd7rm4tgdbmtpcyamfhu&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31kbmd7bbd7rm4tgdbmtpcyamfhu&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=50c0dc&bar_color_cover=false">
   </a>
