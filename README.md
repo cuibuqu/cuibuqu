@@ -10,6 +10,6 @@
 Mikaela (Kae) She/He, Limit int if under 16
 <br>(:3 」∠) _ c+h okay NO DNI Smiles warmly
 <br> <br>
-<img src="https://i.postimg.cc/4NMXDhn9/56.gif"> Hi Farg GC, <a href="https://github.com/bacilli">Jasper</a> & Mo ♡♡ ILY
+<img src="https://i.postimg.cc/4NMXDhn9/56.gif"> Hi Farg GC, Jasper & Mo ♡♡ ILY
 <br> <br> <br> <br> <br>
 </p>
