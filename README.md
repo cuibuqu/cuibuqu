@@ -5,7 +5,7 @@
   </a>
 
 <br>
-<img src="https://i.pinimg.com/originals/6f/43/9d/6f439d0126a3c977ba00c160d9d7a4fc.gif" width="300px">
+<img src="https://i.pinimg.com/originals/6f/43/9d/6f439d0126a3c977ba00c160d9d7a4fc.gif" width="290px">
 <br>
 Mikaela (Kae) She/He, Limit int if under 16
 <br>(:3 」∠) _ c+h okay NO DNI Smiles warmly
