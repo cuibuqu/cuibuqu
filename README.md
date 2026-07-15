@@ -9,6 +9,7 @@
 <br>
 Mikaela (Kae) She/He,&ensp; Limit int if under 16
 <br>(,; ⩌ ;,) &ensp; c+h okay&ensp; NO DNI&ensp; Smiles warmly
+<br><a href="https://listography.com/cwn">listography</a> *Yay* --> things i am fond of
 <br> <br>
 </p>
 
