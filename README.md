@@ -8,7 +8,7 @@
 <img src="https://i.pinimg.com/originals/6f/43/9d/6f439d0126a3c977ba00c160d9d7a4fc.gif" width="300px">
 <br>
 Mikaela (Kae) She/He,&ensp; Limit int if under 16
-<br>(:3 」∠) _ c+h okay&ensp; NO DNI Smiles warmly
+<br>(,; ⩌ ;,) &ensp; c+h okay&ensp; NO DNI&ensp; Smiles warmly
 <br> <br>
 </p>
 
