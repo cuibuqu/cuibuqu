@@ -15,7 +15,7 @@ Mikaela (Kae) She/He,&ensp; Limit int if under 16
 
 <div align="center">
   <details style="cursor: pointer;">
-    <summary><img src="https://i.postimg.cc/4NMXDhn9/56.gif"> Hi <b>Farg GC</b>, <a href="https://github.com/bacilli">Jasper</a> & Mo ♡♡ ILY</summary>
+    <summary><img src="https://i.postimg.cc/4NMXDhn9/56.gif"> Hi <b>Farg GC</b>, <a href="https://github.com/bacilli">Jasp</a>, Mo, & <a href="https://github.com/aruchaco">Seth</a> ♡♡ ILY</summary>
     <p><a href="https://github.com/soldi3rboy">Alex</a>&ensp;<a href="https://github.com/snowplug">Feng</a>&ensp;<a href="https://github.com/bulIseye">Zack</a>&ensp;<a href="https://github.com/RESlDENTEVlL">Ethan</a>&ensp;<a href="https://github.com/kafrenga">Nite</a>&ensp;and those<br>who don't play ponytown</p>
   </details>
    <br><img src="https://file.garden/ZpBNsl5gR2LIe6yq/hashigit" width="230px">
