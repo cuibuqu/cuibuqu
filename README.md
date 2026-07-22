@@ -5,11 +5,13 @@
   </a>
 
 <br>
-<img src="https://i.pinimg.com/originals/6f/43/9d/6f439d0126a3c977ba00c160d9d7a4fc.gif" width="295px">
+<img src ="https://file.garden/ZpBNsl5gR2LIe6yq/github%20repos/eyebow" width="295px">
+<br>
+<img src="https://file.garden/ZpBNsl5gR2LIe6yq/github%20repos/cute" width="295px">
 <br>
 Mikaela (Kae) She/He,&ensp; Limit int if under 16
-<br>(,; ⩌ ;,) &ensp; c+h okay&ensp; NO DNI&ensp; Smiles warmly
-<br><a href="https://listography.com/cwn">listography</a> *Yay* --> things i am fond of
+<br>(,; ⩌ ;,)&ensp; c+h okay&ensp; NO DNI&ensp; Smiles warmly
+<br><a href="https://listography.com/cwn">listography</a> *Yay* ⟶ things i am fond of
 <br> <br>
 </p>
 
@@ -18,7 +20,7 @@ Mikaela (Kae) She/He,&ensp; Limit int if under 16
     <summary><img src="https://i.postimg.cc/4NMXDhn9/56.gif"> Hi <b>Farg GC</b>, <a href="https://github.com/bacilli">Jasp</a>, Mo, & <a href="https://github.com/willmesh">Seth</a> ♡♡ ILY</summary>
     <p><a href="https://github.com/soldi3rboy">Alex</a>&ensp;<a href="https://github.com/snowplug">Feng</a>&ensp;<a href="https://github.com/bulIseye">Zack</a>&ensp;<a href="https://github.com/RESlDENTEVlL">Ethan</a>&ensp;<a href="https://github.com/kafrenga">Harvey</a>&ensp;and those<br>who don't play ponytown</p>
   </details>
-   <br><img src="https://file.garden/ZpBNsl5gR2LIe6yq/hashigit" width="230px">
+   <img src="https://file.garden/ZpBNsl5gR2LIe6yq/hashigit" width="210px">
 </div>
 
 <p align="center">
