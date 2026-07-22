@@ -7,7 +7,7 @@
 <br>
 <img src ="https://file.garden/ZpBNsl5gR2LIe6yq/github%20repos/eyebow" width="295px">
 <br>
-<img src="https://file.garden/ZpBNsl5gR2LIe6yq/github%20repos/cute" width="300px">
+<img src="https://file.garden/ZpBNsl5gR2LIe6yq/github%20repos/cute" width="310px">
 <br>
 Mikaela (Kae) She/He,&ensp; Limit int if under 16
 <br>(,; ⩌ ;,)&ensp; c+h okay&ensp; NO DNI&ensp; Smiles warmly
